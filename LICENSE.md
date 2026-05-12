@@ -1,4 +1,4 @@
-# 
+# Adobe Premiere Pro for macOS premium Script: subtitle-generator & EQ offers the most advanced Adobe Premiere Pro for macOS script, with subtitle-generator and EQ. Ideal for
 
 
 
